@@ -7,11 +7,11 @@
  
  дни младше 18 (можно закентиться, но без близкого общения) 
 
-
-
-
-
-
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;
+&nbsp;
 
        
 посвятите меня в км вкея молю
